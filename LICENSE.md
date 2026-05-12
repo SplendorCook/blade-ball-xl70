@@ -1,4 +1,4 @@
-#  
+#  Experience math for brainrots like never before with top Scripts for math for brainrots, the #1 Script. Includes aimbot and instant win for
 
 
 
